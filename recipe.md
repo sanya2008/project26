@@ -1,0 +1,1 @@
+first you need to separate the oreos cream from it , after the u need to grind the oreos and slowly mix milk with it. after that the batter will be ready add the baking powder to the batter and microwave for 10 mins .after that u can apply the chocolate sauce and gems for decoration.
